@@ -13,8 +13,8 @@
 ### 我最喜歡的網站
 [Chatgpt](https://www.chatgpt.com)
 
-### 我最喜歡的迷因圖
-![Laughing-cat](laughingcat.jpg)
+### Rest in peace 彪哥
+![Dog](Dog.jpg)
 
 ### 人生哲學或名言
 >孫子曰
