@@ -14,6 +14,6 @@
 [高科大](https://www.nkust.edu.tw)
 
 ---
-![HAHACAT](667bb92826a64df46ec139b904ce312e.JPG)
+![HAHACAT](hahacat.JPG)
 
 [Ragebait](https://youtu.be/dQw4w9WgXcQ)
